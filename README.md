@@ -7,7 +7,7 @@
 🛠️ Skilled in tools such as Excel, SQL, and Python for data analysis and management.
 
 💼 Currently looking for opportunities in data, tech, and AI-related roles (on-site in Mauritania, remote, or freelance).
-📫 Reach me on [www.linkedin.com/in/nidal-boumeija-bb135b286](https://www.linkedin.com/in/nidal-boumeija-bb135b286) or via email at nidaleyoub@gmail.com.
+📫 Reach me on www.linkedin.com/in/nidal-eyoub-boumeija                    [www.linkedin.com/in/nidal-boumeija-bb135b286](https://www.linkedin.com/in/nidal-boumeija-bb135b286) or via email at nidaleyoub@gmail.com.
 
 -->
 
